@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zoe72rtd you can call me Zoe
+- 👀 I’m interested in music
+- 🌱 I’m currently learning how to program
+- 💞️ I am interested in being an industrial designer and engineer
